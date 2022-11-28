@@ -1,3 +1,3 @@
 0x0E SQL more quries
 
- MULUKEN SHOLAYE
+Yared Tassew
